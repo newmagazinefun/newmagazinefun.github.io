@@ -1,0 +1,1 @@
+# newmagazinefun.github.io
